@@ -3,13 +3,21 @@
 A List of 41 Money-making App Publishing Website
 
 名称 网址 说明
+
 1 手赚网 http://www.shouzhuanapp.com/ √
+
 2 手赚汇 http://www.app522.com/ √
+
 3 手赚屋 http://www.shouzuanwu.com/ √
+
 4 中华手赚网 http://www.appzhonghua.com/ √
+
 5 安卓手赚网 http://www.anzhuoshouzhuan.com/ √
+
 6 爱手赚网 http://www.aishouzhuan.com/ √
+
 7 手赚之家 http://www.shouzuan.net/ √
+
 8 360手赚网 http://www.360shouzhuan.com/ 
 9 金榜手赚网 http://www.jbshouzhuan.com/ √
 10 手赚市场 http://www.i8i3.com/ √
